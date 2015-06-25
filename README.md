@@ -1,2 +1,1 @@
 # kookminuni_project
-whahahahahaa
